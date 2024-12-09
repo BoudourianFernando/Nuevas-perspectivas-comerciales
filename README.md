@@ -1,1 +1,2 @@
 # Nuevas-perspectivas-comerciales
+América Latina atraviesa una etapa de transformación, marcada por alianzas estratégicas como Mercosur y la Alianza del Pacífico. Estas iniciativas buscan fortalecer el comercio regional y global, enfrentando retos como la desigualdad económica y la volatilidad. Al mismo tiempo, la tecnología, el comercio digital y la sostenibilidad se perfilan como soluciones clave para construir un futuro más inclusivo y competitivo.
